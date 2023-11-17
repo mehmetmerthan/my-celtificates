@@ -1,1 +1,1 @@
-# my-celtificates
+![Açıklama]([https://github.com/KULLANICIADI/REPOADI/blob/main/DOSYAADI](https://github.com/mehmetmerthan/my-celtificates/blob/main/celtificates/Coursera%20MF986SYDHSNR_page-0001.jpg)https://github.com/mehmetmerthan/my-celtificates/blob/main/celtificates/Coursera%20MF986SYDHSNR_page-0001.jpg)
